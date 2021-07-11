@@ -12,7 +12,7 @@ http://amorweb.x10.mx/2021/07/03/planes-divertidos-y-seguros-para-ninos/"> Reali
 </a>
 
 <h2>EL CASTILLO DE CONG</h2>
-<br>
+
 No le sorprenderá que digamos que el castillo de Ashford no es el lugar adecuado si lo que busca es una escapada barata. No es posible alojarse en uno de los mejores hoteles de Irlanda sin pagar mucho por un servicio estelar.
 
 Este verano, el castillo ofrece lo último en escapadas de lujo. Alójese durante cuatro noches y disfrute de lo que seguramente serán los mejores desayunos de todo el año, así como de cuatro cenas y una cata de vinos en la bodega. Pero aún hay más. También irán a tu casa, te recogerán y te volverán a llevar a casa cuando hayas terminado.
